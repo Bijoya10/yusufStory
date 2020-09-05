@@ -1,4 +1,4 @@
-Once upon a time , a boy named Yusuf use to learn programming.
+Once upon a time , a boy named Yusuf use to learn programming and singing.
 Afraa also is learning.
 Yusuf is very naughty.
 Yusuf studies 9th standard
