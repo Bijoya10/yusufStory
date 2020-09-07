@@ -4,3 +4,5 @@ Yusuf is very naughty.
 Yusuf studies 9th standard
 Afraa studies in 6th standard
 Afraa hi
+
+new line
